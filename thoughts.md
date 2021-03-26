@@ -7,5 +7,3 @@ I will try to manage my time better and stick to the times I have allotted for s
 Shoutout to the Big Dawk Ralph in Florida. Stay Positive, test Negative brotha.😂
 
 "If you do what you've always done, you'll get what you've always gotten." -Tony Robbins
-
-"The journey of a thousand miles begins with a single step." -Lao Tzu
